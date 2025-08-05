@@ -9,6 +9,12 @@
 𝙖 𝙜𝙤𝙖𝙡 𝙄 𝙝𝙖𝙫𝙚 𝙛𝙤𝙧 𝙩𝙝𝙚 𝙚𝙣𝙙 𝙤𝙛 𝙩𝙝𝙞𝙨 𝙮𝙚𝙖𝙧 𝙞𝙨 𝙩𝙤 𝙗𝙚 𝙥𝙧𝙤𝙛𝙞𝙘𝙞𝙚𝙣𝙩 𝙞𝙣 𝙥𝙮𝙩𝙝𝙤𝙣 & 𝙅𝙖𝙫𝙖 𝙖𝙣𝙙 𝙝𝙖𝙫𝙚 𝙖 𝙥𝙧𝙤𝙟𝙚𝙘𝙩 𝙙𝙤𝙣𝙚!
 
 
- 𝗳𝗲𝗲𝗹 𝗳𝗿𝗲𝗲 𝘁𝗼 𝗺𝗲𝘀𝘀𝗮𝗴𝗲 𝗺𝗲 𝗮𝘁 𝗻𝗼𝗯𝗹𝗲𝗼𝘁𝗼𝗼𝟯𝟵𝟵@𝗴𝗺𝗮𝗶𝗹.𝗰𝗼𝗺. or contact me @ https://www.linkedin.com/in/noble-otoo-mensah-b0543a29b/
+ In my free time I like to listen to music and make art.
+
+<img width="498" height="381" alt="image" src="https://github.com/user-attachments/assets/1f344cc4-b48c-4dac-b2ae-dafb99a5441d" />  <img width="500" height="375" alt="image" src="https://github.com/user-attachments/assets/437b7ded-1c18-452d-936a-381d4fb7784c" />
+
+
+
+𝗳𝗲𝗲𝗹 𝗳𝗿𝗲𝗲 𝘁𝗼 𝗺𝗲𝘀𝘀𝗮𝗴𝗲 𝗺𝗲 𝗮𝘁 𝗻𝗼𝗯𝗹𝗲𝗼𝘁𝗼𝗼𝟯𝟵𝟵@𝗴𝗺𝗮𝗶𝗹.𝗰𝗼𝗺. or contact me @ https://www.linkedin.com/in/noble-otoo-mensah-b0543a29b/
 
 
