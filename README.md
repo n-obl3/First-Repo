@@ -11,7 +11,8 @@
 
  In my free time I like to listen to music and make art.
 
-![My GIF](e8f28121eba19ac9b346358e4d7d66e4.gif) <img src="W66XWv.gif" width="400" height="300">
+![My GIF](e8f28121eba19ac9b346358e4d7d66e4.gif) 
+<img src="W66XWv.gif" width="400" height="300">
 
 
 
