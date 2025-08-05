@@ -11,8 +11,7 @@
 
  In my free time I like to listen to music and make art.
 
-<img width="498" height="381" alt="image" src="https://github.com/user-attachments/assets/1f344cc4-b48c-4dac-b2ae-dafb99a5441d" />  <img width="500" height="375" alt="image" src="https://github.com/user-attachments/assets/437b7ded-1c18-452d-936a-381d4fb7784c" />
-
+<img width="498" height="381" alt="image" src="https://github.com/user-attachments/assets/1f344cc4-b48c-4dac-b2ae-dafb99a5441d" /> 
 
 
 𝗳𝗲𝗲𝗹 𝗳𝗿𝗲𝗲 𝘁𝗼 𝗺𝗲𝘀𝘀𝗮𝗴𝗲 𝗺𝗲 𝗮𝘁 𝗻𝗼𝗯𝗹𝗲𝗼𝘁𝗼𝗼𝟯𝟵𝟵@𝗴𝗺𝗮𝗶𝗹.𝗰𝗼𝗺. or contact me @ https://www.linkedin.com/in/noble-otoo-mensah-b0543a29b/
